@@ -52,7 +52,7 @@ Before starting my graduate studies, I gained professional experience in **data 
 ## 📫 Connect With Me
 
 - **Email:** sachinchahal10@gmail.com  
-- **LinkedIn:** *(Add your LinkedIn profile link here)*  
+- **LinkedIn:** *(www.linkedin.com/in/sachinchahal)*  
 
 ---
 
